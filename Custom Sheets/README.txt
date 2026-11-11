@@ -1,0 +1,1 @@
+Where all of my custom character sheets for various systems live. Only versions that wont get me into any copyright trouble go here - if we're friends let me know if you want one and I can hook you up with a sheet with copyrighted fonts and graphics
